@@ -10,6 +10,11 @@ Agradecería recibir sus comentarios y sugerencias.
 ![vista_escritorio](https://github.com/user-attachments/assets/16219e7b-c054-444e-a246-24531c109371)
 
 
+
+![encriptando](https://github.com/user-attachments/assets/cab45639-cae0-4731-878f-5af51cf3737a)
+
+
+
 ![vista_tablet](https://github.com/user-attachments/assets/126348e8-0ba7-4b45-b455-c667d7cf999c)
 
 
